@@ -9,3 +9,6 @@
 
 
 https://kisland291.github.io/220617/
+
+使用方法
+全部撥放一起聽
